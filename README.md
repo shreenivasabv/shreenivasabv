@@ -1,4 +1,4 @@
-## Hi 👋, I'm Shreenivas B V
+## Hi 👋, I'm Shreenivasa b v
 
 Here are some ideas to get you started:
 
